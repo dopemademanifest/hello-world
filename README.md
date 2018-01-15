@@ -1,2 +1,7 @@
 # hello-world
-Follow Your Bliss
+
+And welcome to the chronicles of a chronic fuck-up.
+
+A retrospective look on the parable of a perishable. 
+
+Brace yourself. 
